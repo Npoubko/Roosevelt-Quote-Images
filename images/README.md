@@ -1,0 +1,1 @@
+![](teddyroosevelt1.png)
